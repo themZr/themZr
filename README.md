@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and geomery dah
 - 🌱 I’m currently learning 😔😔😂
 - 💞️ I’m looking to collaborate on georg das colla
-- 📫 How to reach me Ukraine Selo Kremenchuk Pivnaya 26/5
+- 📫 How to reach me [REMOVED]
 
 <!---
 themZr/themZr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
